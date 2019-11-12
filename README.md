@@ -1,5 +1,6 @@
 # startupyourbusiness
 We take away the hassles of starting a new business and reduce the pressures on you.  Simply fill out the form on the right to instantly receive your free report – How to start a business with the best chance of success
+
 1/  Analyse and Define your Business Idea
 Firstly, do you have what you think is a good business idea? Ask yourself is it feasible? You may need to find out if there is a market out there for your product or service. If so you may need to carry out some market research to determine who your competition might be and what are their pricing structures. Also, you should look into ways you can differentiate your products or services from those already in the market place. In today’s busy competitive world you need to be able to stand out against what may be many competitors. This point of difference essential for your market push. Can your product or service be better, cheaper, faster or more efficient than the opposition? Then concentrate on those features  Create a list of strengths and weaknesses that may  apply to your proposed business  so you can determine what to promote and what to overcome 
 If you would like to discuss your idea initially give us a call  0n 1300 828494  and we will see how one of our associates can help you starting your business.
